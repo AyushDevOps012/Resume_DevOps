@@ -1,2 +1,2 @@
 # Resume_DevOps
-https://drive.google.com/file/d/1jZaNHS0FNgh-SUiVrzcNdySVjg0wO-pQ/view?usp=sharing
+https://drive.google.com/drive/folders/1ZXMOyJsksydP1od8s5TjhvZ41VidgXO4?usp=sharing
